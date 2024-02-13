@@ -1,1 +1,1 @@
-<img width="1509" alt="Screenshot 2024-02-13 at 3 43 55 PM" src="https://github.com/nataliabdallah/nataliabdallah/assets/143548087/f06e0d68-b7fb-4828-b1e6-359f8e978fd9">
+<img width="1572" alt="Screenshot 2024-02-13 at 3 55 23 PM" src="https://github.com/nataliabdallah/nataliabdallah/assets/143548087/9844c41f-f432-49d4-979d-613e4ce673d5">
